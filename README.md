@@ -3,7 +3,8 @@
 
 ## Author
 Furrell Jordan Meas  
-
+Email: furrelljordanmeas@gmail.com 
+Phone: 060 695 9079
 ---
 
 ## Project Overview
